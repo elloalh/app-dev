@@ -8,4 +8,4 @@ The reason why Wall-E met Eve is because Eve had a mission to search for life of
 
 in summary the OTTO(the steering wheel robot)was preventing humans to go back to earth because it was programmed to keep humans in space and if ever they say a life of plants the OTTO will just throw it away.
 
-Wall-E and Eve tried to bring back the plant because OTTO threw it away, Wall-E sacrifi
+Wall-E and Eve tried to bring back the plant because OTTO threw it away, Wall-E sacrificed his life in order to bring the humans back to earth, but it was okay because when Eve and Wall-E got back to earth Eve went directly to Wall-E's place and searched for spare parts to replace his damaged parts, luckily Wall-E was alive.
