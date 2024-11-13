@@ -13,3 +13,7 @@ Wall-E and Eve tried to bring back the plant because OTTO threw it away, Wall-E 
 ## lessons of WALL-E
 - we must not rely on robots, the show clearly show that when we rely on robots we will be fucking fat
 - the show also shows that we must take care of nature because if the day comes that there are no trees on earth, we might also end up in space
+
+  
+## the movie have a motto "I DONT WANT TO SURVICE, I WANT TO LIVE." 
+
